@@ -1,0 +1,16 @@
+https://stationf.co/programs
+https://21st.centralesupelec.com/
+https://www.joinef.com/apply-now/
+https://lafrenchtech.com/en/how-france-helps-startups/french-tech-community-fund-en/
+https://alven.co/
+https://www.elaia.com/
+https://www.isai.vc/
+https://www.serena.vc/
+https://caphorn.vc/
+https://ventures.orange.com/
+https://www.euratechnologies.com/en
+https://www.parisandco.com/
+https://www.euratechnologies.com/en/startup-programs
+https://www.techstars.com/faq#accelerators
+https://www.theschoolab.com/startup-entrepreneuriat/starter-incubateur/
+https://grandengineer.ru/
